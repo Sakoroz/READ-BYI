@@ -1,2 +1,3 @@
-Basically just --> Strawpage --> https://rarar.straw.page
-Read byi!
+no clue how to do this so 
+--> Strawpage --> https://rarar.straw.page
+Github is always linked.
